@@ -1,1 +1,0 @@
-# sentanos.github.io
